@@ -1,4 +1,4 @@
-# 💫 I'm Lily:
+# 💫 Hi! I'm Lily:
 ❤️ Graphic designer who also has a love for coding<br>
 ✨ I create websites and tools to help in my everyday life<br>
 🌙 Follow along in my journey
